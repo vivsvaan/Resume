@@ -1,2 +1,2 @@
 # Resume
-[Vivsvaan-Resume.pdf](google.com)
+[Vivsvaan-Resume.pdf](Vivsvaan-Resume.pdf)
